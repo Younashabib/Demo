@@ -1,1 +1,2 @@
-//dhuddi chussar hai
+//dhuddi chussar hai mujay pta ha
+//bukhari
